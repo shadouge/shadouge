@@ -1,2 +1,2 @@
-<br><p align="center"><img src="https://files.catbox.moe/u9ruel.png">
-<br><p align="center">·།་ ⠀◜.⋆⠀i'm right where you left me ༝ ⠀♡ ་།·
+wip
+<br><p align="center">·།་ ⠀◜.⋆⠀one day ill grow wings , and we'll fly out of this shitty town . ༝ ⠀♡ ་།·
